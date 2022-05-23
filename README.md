@@ -1,1 +1,1 @@
-# https://SaberMaisRussas.github.io/politicadeprivacidade.github.io/
+https://sabermaisrussas.github.io/politicadeprivacidade.github.io/
